@@ -7,7 +7,7 @@ I step out of the truck. I had lingered longer than usual in the heat and comfor
 
 >"Yes," I said. "Isn't it pretty to think so?"
 
-What an end. Not shocking, or even touching really, but real. Memories, I suppose, are what we make them. Truth and memories are not always the same. 
+What an end. Not shocking, or even touching really, but real. Memories, I suppose, are what we make them. Truth and memories are not always the same. I know that now.
 
 I finish adjusting my poles, and don my gloves. As I cross the parking lot, another headlamp emerges from a Subaru. I nod. No need for words this early, they too know the dance. Maybe I'll see them on the trail. Maybe I wont. I stare at the stars above Jackson. I cross the road to the bootpack. My mind wanders.
 
@@ -51,7 +51,7 @@ That some of these women still suffer me as a friend, I am grateful. It is a tes
 
 >"I thought I had paid for everything. Not like the woman pays and pays and pays. No idea of retribution or punishment. Just exchange of values. You gave something up and got something else. Or you worked for something. You paid some way for everything that was any good."
 
-I crest the ridge above the radio tower. The sky is light. The thin strip of orange is now stretching past the Gros Ventres. I put on my sunglasses, and drive forward. My mind wanders.
+I crest the ridge above the radio tower. The sky is light. The thin strip of orange is now stretching past the Gros Ventres. I put on my sunglasses, and forge on. My mind wanders.
 
 ##Over The Top.
 
