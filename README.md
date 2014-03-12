@@ -3,15 +3,19 @@
 
 ##The Lot.
 
-I step out of the truck. I had lingered longer than usual in the heat and comfort of the Tacoma's cab. Slowly sipping coffee, and listening to the last few words of the book on tape I had been enjoying over the last week, Ernest Hemingway's "The Sun Also Rises." The crisp March air fills my lungs, and the pre dance ritual begins. It was cold. But then it was always cold on Teton Pass at 6:30 AM. I turned my headlamp on, and laced up my boots outside, as I always found the confined nature of the trucks cab never quite sufficient for getting them fitted properly. I was still thinking about the last line of the book when I grabbed my worn pack out of the back, and strapped on my battered snowboard. 
+I step out of the truck. I had lingered longer than usual in the heat and comfort of the Tacoma's cab. Slowly sipping coffee, and listening to the last few words of the book on tape I had been enjoying over the last week, Ernest Hemingway's "The Sun Also Rises." The crisp March air fills my lungs, and the pre dance ritual begins. It was cold. But then it was always cold on Teton Pass at 6:30 AM. I turned my headlamp on, and laced up my boots outside, as I always found the confined nature of the trucks cab never quite sufficient for getting them fitted properly. I was still thinking about the last line of the book when I grabbed my worn pack out of the back of the truck, and strapped on my battered snowboard. 
 
 >"Yes," I said. "Isn't it pretty to think so?"
 
-What an end. Not shocking, or even touching really, but real. Memories, I suppose, are what we make them. Truth and memories are not always the same. I finish adjusting my poles, and don my gloves. As I cross the parking lot, another headlamp emerges from a Subaru. I nod. No need for words this early, they too know the dance. I stare at the stars above Jackson. I cross the road to the bootpack. My mind wanders.
+What an end. Not shocking, or even touching really, but real. Memories, I suppose, are what we make them. Truth and memories are not always the same. 
+
+I finish adjusting my poles, and don my gloves. As I cross the parking lot, another headlamp emerges from a Subaru. I nod. No need for words this early, they too know the dance. Maybe I'll see them on the trail. Maybe I wont. I stare at the stars above Jackson. I cross the road to the bootpack. My mind wanders.
 
 ##The Rhythm Begins.
 
 Left, right, left, right. One foot in front of the other is how it goes. It's the dance. The slog. I've danced this dance before, many times. In many ways, I learned this dance in Oklahoma, under the cruel tutelage of Drill Sergeants Foley, and Gonzales. The Fort Sill Shuffle, it was named, as I recall now. With that foundation, I was invited to attend exhibitions all over the world, and did for a short time. Korea, Virginia, Montana, Texas, and Iraq, to name a few. It was in Iraq that the music finally dimmed for me, and I thought little of dancing for a time afterward. I thought of my partners in movement often, and it is of them I am thinking of now. Men like Fred, Murph, Harp, Bailey, and the others. We were brilliant together, we moved like clockwork, we were swift, we were silent, we were deadly. We were men to be feared. We danced silently in the dark, and reigned down destruction at need. It was a dance of danger, a dance of discomfort. We talked of what would happen when the music stopped. I was not ready, I know that now.
+
+>"'Nobody ever lives their life all the way up except bull-fighters.'"
 
 I reached the first ridge, and looked to my right to see a sliver of golden orange sun reaching what seemed to be no more than inches above, and silhouetting the Hobacks. I force a sip of tea. My mind wanders.
 
