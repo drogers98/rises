@@ -18,11 +18,14 @@ I reached the first ridge, and looked to my right to see a sliver of golden oran
 
 ##The Rythm Continues.
 
-If the sound of boots crunching up the fresh snow covering the trail was the drum beat, the wind now added into the hum. Left, right, left, right. Still dancing. It was a different dance now, in my mind. One that had changed over the years. A dance that was now on my terms.
+If the sound of boots crunching up the fresh snow covering the trail was the drum beat, the wind now added into the hum. Left, right, left, right. Still dancing. It was a different dance now though, in my mind. One that had changed over the years. A dance that was now on my terms.
 
-It was a dance I had learned to enjoy again. A dance I had put on in places like West Virginia, the Pacific Northwest, the Wind River Range, and the Tetons. This dance had different rules, different moves, different partners. I was a student again, and eager to learn. Alpine starts, horrible weather, and long days that left you shivering yourself to sleep in the middle of nowhere. These are the cover charges. The chattering of teeth now adds to the percussion.
+It was a dance I had slowly learned to enjoy again. A dance I had put on in places like West Virginia, the Pacific Northwest, the Wind River Range, and the Tetons. This dance had different rules, different moves, different partners. I was a student again, and eager to learn. Alpine starts, horrible weather, and long days that left you shivering yourself to sleep in the middle of nowhere. These are the cover charges. The chattering of teeth, rather than machine guns now adds to the percussion.
 
-My partners in this new dance have, what Hemingway describes as aficion. Passion. It's a must.  For this too is a dance of discomfort, and danger. It is apparently, the style that suits me. This dance is more artistic, more bold than before. No longer confined to the shadows.
+My partners in this new dance have, for the most part, what Hemingway describes as afición. Passion. It's a must.  For this too is a dance of discomfort, a dance frought with danger. It is apparently, the style of movement that suits me. This dance is more artistic, more bold than before. No longer confined to the shadows. Deeds done in the light, for all to see. Even if that is just a line in the snow, or photos from the summit. 
 
+I do my best to spread this passion to all who are interested, but afición is a personal choice. I can take you out, but I can't make you love it. Passion. You have it or you dont. Game recognize game. I have plenty of friends here in the Tetons that have it, like Giles, Jordan, Tyler, Bill, Julia, and others. None are with me today. They will be out on their own dances soon enough, if they are not already, and I wish them good hunting. I will see them soon.
 
+>"For one who had aficion he could forgive anything. At once he forgave me all my friends. Without his ever saying anything they were simply a little something shameful between us, like the spilling open of the horses in bull-fighting."
 
+I reach the steeps. I pause for a moment, and look back. My truck now a speck in the parking lot, I see the long snake of commuters headed to Jackson, and smile. That will be me soon, but not just yet. I see the Snake River Range aglow in orange as the sun rises higher. I turn off my headlamp. My mind wanders.
