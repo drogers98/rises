@@ -12,9 +12,9 @@ I finish adjusting my poles, and don my gloves. As I cross the parking lot, anot
 
 ##The Rythm Begins.
 
-Left, right, left, right. One foot in front of the other is how it goes. It's the dance. The slog. I've danced this dance before, many times. In many ways, I learned this dance in Oklahoma, under the cruel tutelage of the dancing masters Drill Sergeants Foley, and Gonzales. The Fort Sill Shuffle, it was named, as I recall now. With that foundation, I was invited to attend Suarez all over the world, and did for a short time. Korea, Virginia, Montana, Texas, and Iraq. It was in Iraq that the music finally dimmed for me, and I thought little of dancing for a time afterward. I thought of my partners in movement often, and it is of them I am thinking of now. We were brilliant together, we moved like clockwork, we were swift, we were silent, we were deadly. We were men to be feared. We danced silently in the dark, and reigned down destruction. It was a dance of danger, a dance of discomfort. We talked of what would happen when the music stopped. I was not ready.
+Left, right, left, right. One foot in front of the other is how it goes. It's the dance. The slog. I've danced this dance before, many times. In many ways, I learned this dance in Oklahoma, under the cruel tutelage of the dancing masters Drill Sergeants Foley, and Gonzales. The Fort Sill Shuffle, it was named, as I recall now. With that foundation, I was invited to attend Suarez all over the world, and did for a short time. Korea, Virginia, Montana, Texas, and Iraq. It was in Iraq that the music finally dimmed for me, and I thought little of dancing for a time afterward. I thought of my partners in movement often, and it is of them I am thinking of now. Men like Fred, Murph, Harp, Bailley, and the others. We were brilliant together, we moved like clockwork, we were swift, we were silent, we were deadly. We were men to be feared. We danced silently in the dark, and reigned down destruction. It was a dance of danger, a dance of discomfort. We talked of what would happen when the music stopped. I was not ready.
 
-I reached the first ridge, and looked to my right to see a sliver of golden orange sun reaching what seemed to be no more than inches above, and silhouetting the Hobacks. My mind wanders.
+I reached the first ridge, and looked to my right to see a sliver of golden orange sun reaching what seemed to be no more than inches above, and silhouetting the Hobacks. I force a sip of water. My mind wanders.
 
 ##The Rythm Continues.
 
@@ -24,8 +24,14 @@ It was a dance I had slowly learned to enjoy again. A dance I had put on in plac
 
 My partners in this new dance have, for the most part, what Hemingway describes as afición. Passion. It's a must.  For this too is a dance of discomfort, a dance frought with danger. It is apparently, the style of movement that suits me. This dance is more artistic, more bold than before. No longer confined to the shadows. Deeds done in the light, for all to see. Even if that is just a line in the snow, or photos from the summit. 
 
-I do my best to spread this passion to all who are interested, but afición is a personal choice. I can take you out, but I can't make you love it. Passion. You have it or you dont. Game recognize game. I have plenty of friends here in the Tetons that have it, like Giles, Jordan, Tyler, Bill, Julia, and others. None are with me today. They will be out on their own dances soon enough, if they are not already, and I wish them good hunting. I will see them soon.
+I do my best to spread this passion to all who are interested, but afición is a personal choice. I can take you out, but I can't make you love it. Passion. You have it or you dont. Game recognize game. I have plenty of friends here in the Tetons that have it, like Giles, Jordan, Tyler, Bill, Julia, Mike, and others. None are with me today. They will be out on their own dances soon enough, if they are not already. I wish them good hunting. I will see them soon.
 
->"For one who had aficion he could forgive anything. At once he forgave me all my friends. Without his ever saying anything they were simply a little something shameful between us, like the spilling open of the horses in bull-fighting."
+>"For one who had afición he could forgive anything. At once he forgave me all my friends. Without his ever saying anything they were simply a little something shameful between us, like the spilling open of the horses in bull-fighting."
 
-I reach the steeps. I pause for a moment, and look back. My truck now a speck in the parking lot, I see the long snake of commuters headed to Jackson, and smile. That will be me soon, but not just yet. I see the Snake River Range aglow in orange as the sun rises higher. I turn off my headlamp. My mind wanders.
+I reach the steeps. I pause for a moment, and look back. My truck now a speck in the parking lot, I see the long stretch of commuters headed to Jackson, and smile. That will be me soon, but not just yet. I see the Snake River Range basking aglow in orange as the sun rises higher. I turn off my headlamp. My mind wanders.
+
+##Drum Solo.
+
+Onward and upward, I think to myself. Left, right, pole, step, pole, step. There are others on Mt Glory this morning to be sure, but at the moment, I am alone. My own private Wyoming. Not unusual for this hour. I prefer it that way. I wonder if all with real afición do. No one to look after, no one to consult, no one to impress. Is that true freedom? Or just romantic nonsense? On my journey onward, and ever upward, who has been left along the way? 
+
+My thoughts turn towards family. Jeff, Maripat, Vance, Julie, and Meg. They have always supported me 
