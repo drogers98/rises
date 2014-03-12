@@ -1,5 +1,5 @@
 #The Sun Also Rises. 
-###A short story of a morning, a mountain, and a life so far.
+###A short story of a Wednesday morning, a mountain, and a life so far.
 
 ##The Lot.
 
@@ -57,12 +57,12 @@ I crest the ridge above the radio tower. The sky is light. The thin strip of ora
 
 From here on, the going is easy. The panoramic views engulf me, and entire mountain ranges engulfed in the flame of the morning wash over my vision. A pause in the dance. A drink break for the band. The Tetons, the Gros Ventres, the Hobacks, the Snake River Range, and the Big Holes. These names mean nothing to most, but everything to some. No matter how many times I explore them, there's always more. Each foray only succeeds in wetting the appetite for further exploration. It's a drug. An addictive one. I crave the alpine. I need it, more than anything.
 
-I think back to other memorable sunrises, and the band plays on. I think of the first rays of dawn filtering through the trees in West Virginia with some of the best friends I've ever had. I think of the calm solace, and awestruck colors of the sunsets in Hawaii with Lauren and my family. I think of being warmed by the first rays of dawn whilst bivouacked on peak 11,300 with Ken in Alaska. I think of watching the sun rise over the Gros Vetres, while huddling for warmth on the lower saddle of the Grand Teton, so many times, with so many friends. I think of the endless sun rises with Fred and the boys in the desert, punctuated by the morning call of the mosque, and the nagging feeling that it might just be your last. 
+I think back to other memorable sunrises, and the band plays on. I think of the first rays of dawn filtering through the trees in West Virginia with some of the best friends I've ever had. I think of the calm solace, and awestruck colors of the sunsets in Hawaii with Lauren and my family. I think of being warmed by the first rays of dawn whilst bivouacked on peak 11,300 with Ken in Alaska. I think of watching the sun rise over the Gros Vetres, while huddling for warmth on the lower saddle of the Grand Teton, so many times, with so many friends. I think of the endless sun rises with Fred and the boys in the desert, punctuated by the morning call of the mosque, and the nagging feeling that it might just be our last. 
 
 >"'This wine is too good for toast-drinking, my dear. You don't want to mix emotions up with a wine like that. You lose the taste.'" 
 
-Would this memory make the list? Probably not. The solo ones never do. You never bring up dancing by yourself. You never remember as vividly. I suppose it doesn't make them any less important though.
+Would this particular sunrise make the top 10 list in my mind? Probably not. The solo ones never do it seems. You never bring up dancing by yourself. You never remember as vividly. I suppose it doesn't make them any less important though. Memories are people. Driven by friends. Driven by family. Driven by emotion. Never by truth.
 
-I stride past the ramshackle hut on top. No time today. Need to get to work. I set my pack down, and begin the time honored ritual of preparing to ride. The wind on top cuts through the sweat soaked spot on my back that was formerly occupied by 15 pounds of gear. It is not something I even really think about anymore I suppose. Belay jacket, unstrap board, helmet, goggles, gloves, stow poles, don pack, strap in. 
+I stride past the ramshackle hut on top. No time today. Need to get to work. I set my pack down, and begin the time honored, and well practiced ritual of preparing to ride. The wind cuts through the sweat soaked spot on my back that was formerly occupied by 15 pounds of gear. It is not something one even really thinks about anymore I suppose. Belay jacket, unstrap board, helmet, goggles, gloves, stow poles, don pack, strap in. Ski to kill.
 
-The click, click, click of my ratchet straps add another instrument to the now full band. I stand up, and look around. Not a bad start to Wednesday. Certainly not the worst. I point the chipped and beaten nose downhill. My mind clears.
+The click, click, click of my ratchet straps add another instrument to the now full band. I stand up, and look around. Not a bad start to Wednesday. Certainly not the worst. I point the chipped and beaten nose downhill. I pick up speed. My mind clears.
