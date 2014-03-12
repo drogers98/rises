@@ -1,4 +1,5 @@
-#The Sun Also Rises. A short story of a morning, a mountain, and life I suppose.
+#The Sun Also Rises. 
+###A short story of a morning, a mountain, and life I suppose.
 
 ##The Lot.
 
