@@ -65,4 +65,4 @@ Would this particular sunrise make the top 10 list in my mind? Probably not. The
 
 I stride past the ramshackle disco hut on top. No time today. Need to get to work. I set my pack down, and begin the time honored, and well practiced ritual of preparing to ride. The wind cuts through the sweat soaked spot on my back that was formerly occupied by 15 pounds of gear. It is not something one even really thinks about anymore I suppose. Belay jacket, unstrap board, helmet, goggles, gloves, stow poles, don pack, strap in. Ski to kill.
 
-The click, click, click of my ratchet straps add another instrument to the now full band. I stand up, and look around. Not a bad start to Wednesday. Certainly not the worst. Enough rest, time to get back out on the floor. I point the chipped and beaten nose downhill. I pick up speed. My mind clears.
+The click, click, click of my ratchet straps add another instrument to the now full band. I stand up, and look around. Not a bad start to Wednesday. Certainly not the worst. Enough rest, The sun is up, time to get back out on the floor. I point the chipped and beaten nose downhill. I pick up speed. My mind clears.
