@@ -43,9 +43,9 @@ Two skiers are descending Twin Slides, obviously a couple. I nod to them silentl
 
 It's getting steeper, I collapse my poles a bit, and carry on. My mind wanders.
 
-There have been several failed relationships in my life I regret. Most of them have been my fault. Dancing with women has always been difficult for me it seems. The moves are awkwardly different, slightly strange. The beat too quick. I am too stingy with my emotions. Things don't have to be rosy all the time, in fact, they shouldn't be. I understand that now. Shades of grey in a mind of black and white.
+There have been several failed relationships in my life I regret. Most of them have been my fault. Dancing with women has always been difficult for me, it would seem. The moves are awkwardly different, slightly strange. The beat too quick. I am too stingy with my emotions. Things don't have to be rosy all the time, in fact, they shouldn't be. I understand that now. Shades of grey in a mind of black and white.
 
-I think back to the ones that mattered. The ones that saw me at my best, and ultimately, at my worst. Lauren, Emily, and the others. They know who they are. Most of these partnerships were ended by me. That's interesting. Whatever reason I gave at the time, it probably wasn't the real one. I know that now. I needed adventure. I needed the cold, the dark, the discomfort, the unknown. I needed to dance.
+I think back to the relationships that mattered most. The women that saw me at my best, and ultimately, at my worst. Lauren, Emily, and the others. They know who they are. Most of these partnerships were ended by me. That's interesting to think about. Whatever reason I gave at the time, it probably wasn't the real, underlying one. I know that now. I needed adventure. I needed the cold, the dark, the discomfort, the unknown. I needed to dance.
 
 That some of these women still suffer me as a friend, I am grateful. It is a testament to their high caliber, giving nature. Proof of good in the world. Part of me wants to call, to write, to catch up over drinks. To thank you for being a part of my story, however long or brief the chapter. The other part doesn't want to pry. It's none of my damn business anymore. I've lost that privilege. I've chosen a life of chasing storms. I haven't earned it. I can only honestly wish you happiness.
 
